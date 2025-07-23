@@ -1,1 +1,1 @@
-https://jijo889.github.io/Resume/
+https://jijo889.github.io/Portfolio/
